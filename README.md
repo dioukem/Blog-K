@@ -1,2 +1,5 @@
 # Blog-K
-This personal blog based
+
+
+My name is humanK
+Sitting and stand dring water and  watching  TV
